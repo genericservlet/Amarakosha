@@ -1,0 +1,2 @@
+# Amarakosha
+Sanskrit Dictionary
